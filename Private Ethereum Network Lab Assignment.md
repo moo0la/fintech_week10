@@ -1,10 +1,10 @@
-![alt tag](https://i.postimg.cc/PLXjyvLs/2021-12-21.png)\
-![alt tag](https://i.postimg.cc/LqDHF3d8/2021-12-21-1.png)\
-![alt tag](https://i.postimg.cc/WF4sNqj6/2021-12-21-2.png)\
-![alt tag](https://i.postimg.cc/N9PB5Gjh/2021-12-21-3.png)\
-![alt tag](https://i.postimg.cc/V0r1MyJJ/2021-12-21-4.png)\
-![alt tag](https://i.postimg.cc/5j6fDzsf/2021-12-21-5.png)\
-![alt tag](https://i.postimg.cc/D8GnwTVD/2021-12-21-6.png)\
-![alt tag](https://i.postimg.cc/mPGRc5Br/2021-12-21-7.png)\
-![alt tag](https://i.postimg.cc/0zdv70y0/2021-12-21-8.png)\
-![alt tag](https://i.postimg.cc/nMgnxLWB/2021-12-21-13.png)\
+![Screen](https://i.postimg.cc/6QRp9dt3/2021-12-21.png)
+![Screen](https://i.postimg.cc/j50CNMZP/2021-12-21-1.png)
+![Screen](https://i.postimg.cc/26QyxnKJ/2021-12-21-2.png)
+![Scree](https://i.postimg.cc/rsqmZK6p/2021-12-21-3.png)
+![Screen](https://i.postimg.cc/SRVKBkqf/2021-12-21-4.png)
+![Screen](https://i.postimg.cc/DfcmJds4/2021-12-21-5.png)
+![Screen](https://i.postimg.cc/HsZx3Y6p/2021-12-21-6.png)
+![Screen](https://i.postimg.cc/wj1BGCrD/2021-12-21-7.png)
+![Screen](https://i.postimg.cc/Vk2NQ7yp/2021-12-21-8.png)
+![Screen](https://i.postimg.cc/m22kQzNX/2021-12-21-13.png)
